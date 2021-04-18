@@ -1,1 +1,1 @@
-# zeomega.github.io
+# This page was parked to prevent hijacking
